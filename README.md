@@ -12,4 +12,5 @@ Aufgrund der laufenden Patentierung des Konzeptes kann ich im Internet nicht vie
 Schließen Sie sich uns doch an und geben Sie uns Input über Ihre Bedürfnisse als Rollstuhlfahrer und/oder bringen Sie sich und Ihr Know-How in das Projekt ein. Wir brauchen Ingenieure, Konstrukteure, Informatiker, Coder, Ideengeber, Inspirateure, Berater, Feedback- und auch Geldgeber. Es kann von einfacher hobbyhafter Unterstützung bis ggf. hin zu einer Anstellung oder Beteiligung gehen – auch als Mitgründer oder Beteiligungsfinanzierer/Risikokapitalgeber. Lassen Sie uns doch einfach in Berlin kennen lernen und das Konzept gemeinsam weiterentwickeln – ich freue mich auf Sie. 
 
 Mit freundlichen Grüßen - Karlheinz Gerster
+
 Bühläckerstraße 8, D-88400 Biberach, Mobil: +49/177/4154828, Fon: +49/7351/7970445, Fax: +49/7351/299082
